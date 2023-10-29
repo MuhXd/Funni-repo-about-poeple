@@ -1,1 +1,1 @@
-# Funni-repo-about-poeple
+# ■ this repo is a joke ■
